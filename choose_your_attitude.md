@@ -1,18 +1,15 @@
 #Choose your attitude
 
-Watch out! You are in the water.
-Everything is moving in it. It's moving way too fast for you to grasp its patterns, predict what's going to happen and thus put it under your [imaginary] control.
-Best of all, you are moving with it.
+If you are feeling bad, chances are, it's because of too many possibilities.
+You see, there is an important distinction between possibilities and options: options are real, while possibilities may not be.
 
-Now you have 3 options:
+Let's play this out.
 
-1. First you can ignore the fact that everything is moving too fast and make-believe that you have something under your control. This works unless [or until] something else in the currents hits you. 
-2. Second, you can accept the fact that everything is moving, but ignore the fact that you are moving with it. This leaves you desperately searching for and clinging to other things 'that seem not to be moving'.
-No matter whether what you are clinging on to is a thing, a person or even your very own self, you are [eventually] up for a lot of pain: you will be terribly disappointed when the gap between your mental image of your anchor and its actual behavior becomes too wide for you to ignore.
-3. Accept both the currents of life and the fact that you are moving in it. And get on with it.
+Imagine you are on your way to an important meeting and you get stuck in traffic jam. The reason you are frustrated and angry is because there are other possibilities in your head: What if you were not in a traffic jam? What if you had chosen a different route? What if you had a helicopter? Those possibilities can drive you crazy while you are stuck in a car.
+Your options are very few though: you can spend the next hour of your life frustrated and unhappy or you can choose to enjoy it.
 
-Don't fool yourself. The only thing that is under your control - is your attitude.
-You are in the water, so float with your eyes wide open and enjoy the view.
+When you are suffering from a lack of choice, it's likely because you are overly aware of other possibilities that are out of reach.
 
-You better choose your attitude. That's the only choice you have.
-// The only choice you have - is to choose your attitude. //
+But you can focus on your real options instead. And the most important choice, the choice that nobody can take away from you, the choice that you have in every single situation in life - is the choice of attitude.
+
+So choose your attitude. That's the only choice you have, anyway.
