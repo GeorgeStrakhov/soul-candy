@@ -5,7 +5,7 @@ You see, there is an important distinction between possibilities and options: op
 
 Let's play this out.
 
-Imagine you are on your way to an important meeting and you get stuck in traffic jam. The reason you are frustrated and angry is because there are other possibilities in your head: What if you were not in a traffic jam? What if you had chosen a different route? What if you had a helicopter? Those possibilities can drive you crazy while you are stuck in a car.
+Imagine you are on your way to an important meeting and you get stuck in a traffic jam. The reason you are frustrated and angry is because there are other possibilities in your head: What if you were not in a traffic jam? What if you had chosen a different route? What if you had a helicopter? Those possibilities can drive you crazy while you are stuck in your car.
 Your options are very few though: you can spend the next hour of your life frustrated and unhappy or you can choose to enjoy it.
 
 When you are suffering from a lack of choice, it's likely because you are overly aware of other possibilities that are out of reach.
