@@ -8,12 +8,15 @@
 + value death
 + just do your thing
 + back to now
++ uncorner
++ care for what matters
+- attach
 
+* be more (do less, be more)
+* attach (happiness is in being at one with something)
+* be real (when you meet real people you sense it straight away. you are real)
 * beware of time
 * you are the force of nature
-* you are a verb (bucky fuller). uncorner. do everything.
-* be here now
-* choose your attitude / the only choice you have
 * jump
 * continue
 * there is no I to worry

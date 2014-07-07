@@ -8,7 +8,7 @@ This book is not a medicine, it's a candy.
 
 I don't think that what's written here is truth. I am not advocating anything. I have nothing to sell. I am an entertainer.
 
-The point of view at life that is presented in this book is [partly] what helps me be one of the happiest people I know. It helps me, so it may very well help you as well. Or not. Try and find out.
+The point of view at life that is presented in this book is [partly] what helps me be one of the happiest people I know. These thoughts make me happy, so they may very well do the same for you as well. Or not. Try and find out.
 
 Enjoy your soul candy, but don't take too much at a time.
 

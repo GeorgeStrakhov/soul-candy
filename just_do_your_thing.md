@@ -1,4 +1,4 @@
-#Just Do Your Thing
+# Just Do Your Thing
 
 If you look closely at what you associate with yourself, then it becomes clear that you are a process, not a thing.
 

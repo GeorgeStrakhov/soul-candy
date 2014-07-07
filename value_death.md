@@ -1,4 +1,4 @@
-#Value death
+# Value death
 
 We are, after all, all made of stardust. But for some curious reason [and despite all the evidence pointing to the opposite], a chunk of stardust that you associate with yourself firmly believes that it's in a way separate from the rest of the world.
 
