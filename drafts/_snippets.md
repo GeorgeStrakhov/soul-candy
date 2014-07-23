@@ -1,5 +1,15 @@
 #Scattered Snippets
 
+
+* be more (do less, be more)
+* be real (when you meet real people you sense it straight away. you are real)
+* beware of time
+* you are the force of nature
+* jump
+* continue
+* there is no I to worry
+* ...
+
 * You are a verb. Do everything. If you let somebody else do it for you - it's bad for you and bad for them.
 
 * You better choose your attitude, since there is nothing else you can choose.
