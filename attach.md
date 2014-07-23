@@ -1,7 +1,7 @@
 # Attach
 
 What brings you joy?
-For me the list is quite diverse, at first sight at least:
+Here are a few items from my list:
 * Simply being with people I love, doing something together
 * Coming up with ideas and making things
 * Reading things and understanding them
@@ -11,8 +11,8 @@ For me the list is quite diverse, at first sight at least:
 * Listening to music and playing music
 * Wandering through busy cities
 
-If you look closer though, there is a pattern.
-First, they are all activities of some sort or another.
-Second, all these activities are about immersing myself in something, resonating to something, being at one with something. They all involve some interaction.
+At first sight, the list looks quite random. 
+
+If you look closer though, there is a pattern: all these activities are about immersing myself in something, resonating to something, being at one with something. They all involve some interaction. Many involve solitude, but this is always solitude of a very special sort: the solitude of being at one with something, the solitude of losing myself, the solitude of total immersion.
 
 True happiness is about being at one with something....
