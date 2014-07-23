@@ -13,4 +13,4 @@ a book of obvious little reminders for when you feel out of tune
 * [Keep wandering](keep_wandering.md)
 * [Uncorner](uncorner.md)
 * [Care for what matters](care_for_what_matters.md)
-* [You are what you practice](you_are_what_you_pracrice.md)
+* [You are what you practice](you_are_what_you_practice.md)
