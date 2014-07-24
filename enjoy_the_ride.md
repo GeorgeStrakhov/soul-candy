@@ -11,3 +11,9 @@ Now you have 3 options:
 3. Finally, you can accept [and appreciate] both the currents of life and the fact that you are moving in it. Then you can choose to get on with it and enjoy the ride.
 
 Don't fool yourself. You are in the water and the only thing that is under your control - is how you float. So float with your eyes wide open and enjoy the ride.
+
+
+* * *
+Read More:
+* Shunryu Suzuki
+* Alan Watts

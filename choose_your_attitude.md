@@ -13,3 +13,8 @@ When you are suffering from a lack of choice, it's likely because you are overly
 But you can focus on your real options instead. And the most important choice, the choice that nobody can take away from you, the choice that you have in every single situation in life - is the choice of attitude.
 
 So choose your attitude. In a way, that's the only choice you have.
+
+
+* * *
+Read More:
+* Viktor Frankl

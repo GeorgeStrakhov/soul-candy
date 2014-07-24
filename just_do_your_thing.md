@@ -10,3 +10,9 @@ Because if you say that it made you, then you are not it. But if you say that it
 So you are it. And yet you are a verb, not a noun. Thus in order to be it, you need to do it. You are doing Universe as much as it's doing you.
 
 Just keep doing your thing then, the human thing, like a bird keeps doing the bird thing and a rock keeps doing the rock thing. And wonder. Because if nothing else, then wondering may very well be the human thing.
+
+
+* * *
+Read More:
+* Alan Watts
+* Buckminster Fuller

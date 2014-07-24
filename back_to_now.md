@@ -18,3 +18,8 @@ So are we bound to unhappiness then? I don't think so. The trick is that we have
 The only thing that you need to do then is to slightly shift your consciousness from the worrying parts to the sensing parts.
 
 After all, the choice of what you call yourself is yours at any given moment: do you want to be the worrying one who lives in the imaginary disastrous futures or do you want to be the sensing one who lives in the now?
+
+* * *
+Read More:
+* Alan Watts
+* Laurence Gonzales

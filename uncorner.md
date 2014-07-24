@@ -20,3 +20,8 @@ Same thing for science. A small amount of people get deeper and deeper into corn
 So what?
 
 Uncorner! Be everything. Embarrass yourself. After all, if the whole dancefloor is yours, why hide in a corner?
+
+
+* * *
+Read More:
+* Raph Koster

@@ -8,3 +8,8 @@ Yet if you ask me why I'm out in the park running, I'll tell you that it's becau
 The good thing is that if you accept the fact, that you can only truly care for very few things at any given moment of time, may be even just one thing, then you have to make a conscious choice about what you are going to care about in everything you do.
 
 Even more importantly, you'll have to decide what you are not going to care about. And that is a very powerful thing to do.
+
+
+* * *
+Read More:
+* Richard Feynman
