@@ -12,7 +12,7 @@ This being said, the point of view at life that is presented in this book is [pa
 
 Enjoy your soul candy, but don't take too much at a time.
 
-Hugs,
+Hugs,  
 +G
 
 p.s.
