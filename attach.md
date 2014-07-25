@@ -23,7 +23,7 @@ The larger the whole is - the harder it is to truly belong, to see and feel your
 
 So don't be afraid to find something (or somebody) to attach to, to be at one with. It doesn't have to be something or somebody special. Because once you are at one, you two will be special by the very fact of your oneness.
 
-Don't be afraid to need somebody, or to have somebody who needs you. Any oneness is temporary, except oneness with the whole world. But why knowing that should not stop you from being at one and enjoying it while it lasts.
+Don't be afraid to need somebody, or to have somebody who needs you. Any oneness is temporary, except oneness with the whole world. But why knowing that should stop you from enjoying oneness while it lasts?
 
 * * *
 Read More:
