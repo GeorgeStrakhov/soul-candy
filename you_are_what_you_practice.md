@@ -11,4 +11,5 @@ When you first practice something new, it feels weird. It feels "against your na
 But hey, would your rather suck at something for the next few months or for the rest of your life?
 
 You are what you practice. So practice what you want to be.
+
 And most importantly, start right now.

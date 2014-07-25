@@ -1,4 +1,4 @@
-# Back to now
+# Be here now
 
 Over the course of evolution, humans have become extremely good at one thing that really matters to evolution: ability to survive.
 
