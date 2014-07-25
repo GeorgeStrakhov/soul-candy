@@ -13,4 +13,4 @@ A perfectly tuned string can't be heard at all [on its own]. It only contributes
 
 So when troubles, here is a simple recipe:
 
-Calm down, Shut up, Tune in!
+Shut up, Calm down, Tune in!
