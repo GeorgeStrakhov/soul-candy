@@ -10,7 +10,7 @@ Yet if you ask me why I'm out in the park running in the first place, then I'll 
 
 The good thing is that if you accept that you can only truly care for very few things at any given moment of time, then you'll have to make a conscious choice about it. You'll have to decide what you are going to care about in everything you do.
 
-Even more importantly, you'll have to decide what you are _not_ going to care about. And that is a very powerful thing to do.
+You will also have to decide what you are _not_ going to care about. And that is a very powerful thing to do.
 
 
 * * *

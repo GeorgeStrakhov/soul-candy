@@ -1,4 +1,4 @@
-# You are what you practice
+# Practice
 
 You are what you repeatedly do. Think a lot - and you become a thinker. Dream a lot  - and you become a dreamer. Worry a lot - and you become a very unhappy person.
 

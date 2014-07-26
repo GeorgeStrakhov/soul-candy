@@ -15,4 +15,5 @@ Just keep doing your thing then, the human thing, like a bird keeps doing the bi
 * * *
 Read More:
 * Alan Watts
+* Richard Feynman
 * Buckminster Fuller
