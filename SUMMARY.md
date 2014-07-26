@@ -15,4 +15,6 @@ a book of obvious little reminders for when you feel out of tune
 * [Uncorner](uncorner.md)
 * [Be more](be_more.md)
 * [Practice](practice.md)
-* [You are not](you_are_not.md)
+* [Be confused](be_confused.md)
+* [Run and find out](run_and_find_out.md)
+* [Leave no footprints](leave_no_footprints.md)

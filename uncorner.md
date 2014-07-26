@@ -25,3 +25,4 @@ Uncorner! Be everything. Embarrass yourself. After all, if the whole dancefloor 
 * * *
 Read More:
 * Raph Koster
+* Seymour Papert

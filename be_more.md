@@ -25,6 +25,6 @@ Stay Put. Do Less. Be More.
 
 * * *
 Read More:
-* Suzuki Shunryu
+* Shunryu Suzuki
 * Alan Watts
 * Søren Kierkegaard

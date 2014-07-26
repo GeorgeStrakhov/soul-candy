@@ -1,4 +1,4 @@
-# You are not
+# Leave no footprints
 
 You are not forever.  
 Not in space or time.  
@@ -34,3 +34,8 @@ You were born this morning,
 Next one you'll be gone.  
 Great man is one sentence.  
 Still greater man is none.
+
+* * *
+
+Read More:
+* Lao-Tzu
