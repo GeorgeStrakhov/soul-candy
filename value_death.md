@@ -1,5 +1,7 @@
 # Value death
 
+![Value death](images/value_death.jpg)
+
 We are, after all, all made of stardust. But for some curious reason [and despite all the evidence pointing to the opposite], a temporary chunk of stardust, that you associate with yourself, firmly believes that it is in a way separate from the rest of the world.
 
 This sense of separation causes a lot of trouble and, among other things, the fear of death.
