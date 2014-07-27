@@ -15,6 +15,8 @@ Enjoy your soul candy, but don't take too much at a time.
 Hugs,  
 +G
 
+Summer 2014. Hong Kong, Kuala Lumpur, Kathmandu and the air in between.
+
 * * *
 p.s.  
 Most of the things in here are pretty obvious. But it's the obvious that we forget too often. None of the things in here are original thoughts. They are all borrowed from a wide range of people, famous and not. Some of these people are cited in "read more" sections. Others, I hope, will forgive me.
