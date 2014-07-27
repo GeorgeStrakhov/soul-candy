@@ -1,17 +1,28 @@
 #Scattered Snippets
 
-* be confused (confusion that leads to curiosity, not fear or anger)
 * give (hyde - gift as the enabler of connections. gifts that grow when shared.)
+  - also Frankl. The more the person gives himself, the more he actualizes or finds himself.
 * listen to the noise // embrace imperfection (karsavin, onion-like world)
-* unfocus (artistic approach to self)
 
-* run and find out (kipling + feynman. the pleasure of finding things out.)
-The pleasure of finding things out is a pleasure of developing a better understanding of how things around you work. Say you hear a beautiful melody. If your ears are not shut - you can appreciate it. Yet if you manage to understand the underlying pattern of sound and silence that makes this melody possible - you can have so much more pleasure. This understanding can be intuitive or mathematical, or anything else. What's important is that it gives you a new dimension, the dimension of possibilities. Because now you are appreciating not just this melody, but all the other melodies made possible by this pattern. You can improvise, you can break the pattern and get back to it - and that's a lot of fun.
+* Go slow, go low. =>
+power of taking it slowly.
+go low - like water, striving for lower places. being gentle but firm. having no form and taking any form.
 
-* repeat (mandelbrot + feynman) - force of nature? Reproduction.
+* take responsibility?
+
+* look back
+Frankl: "having been is also a kind of being, and perhaps the surest kind"; " having been is the surest kind of being"
+
+* Repeat (mandelbrot + feynman) - force of nature? Reproduction.
 The amusing part of life: the whole thing is just reproduction. No matter how complicated the business is, the main point is to do it again!"
 - Richard Feynman
 Side Effects! - focus on the process and side-effects will come. Frankl.
+(add!!!) unfocus (artistic approach to self)
+"Don't aim at success. The more you aim at it and make it a target - the more you are going to miss it." success, like happiness, can not  be pursued. it must ensue, and it only does so as th eunintended side-effect of one's dedication to a cause greater than oneself or as a by-product of one's surrender to a person other than oneself.
+Happiness must happen.
+
+* Do no harm => konrad lorenz
+"In higher animals the ability and inclination to do damage is, unfortunately, in direct proportion to the degree of their intelligence"
 
 * make something
 the world as a construction kit. Seymour Papert.
@@ -23,8 +34,11 @@ Frederick P. Brooks: I think that ability for subcreation is a necessary (and un
  
 So make things. Making things is a joy. "Making things is a joy - immensely satisfying. J.R.R. Tolkien suggests that God gave us the gift of subcreation, as a gift, just for joy. (...) Thanks to The Great Designer, who graciously grants us the means, the daily sustaining, and the joys of subcreation"
 
+And if nothing else works, then make fun.
+"humor was another of the soul's weapons in the fight for self-preservation. It is well known that humor, more than anything else in the human make-up, can afford an aloofness and an ability to rise above any situation, even if only for a few seconds.
 
 * be real (when you meet real people you sense it straight away. you are real)
+* take it slowly (good things take time)
 * beware of time
 * jump
 * continue

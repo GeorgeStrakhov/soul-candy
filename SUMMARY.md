@@ -9,6 +9,7 @@ a book of obvious little reminders for when you feel out of tune
 * [Value death](value_death.md)
 * [Bubble up](bubble_up.md)
 * [Attach](attach.md)
+* [Give and take](give_and_take.md)
 * [Just do your thing](just_do_your_thing.md)
 * [Keep wandering](keep_wandering.md)
 * [Care for what matters](care_for_what_matters.md)
