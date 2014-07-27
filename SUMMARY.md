@@ -12,6 +12,8 @@ a book of obvious little reminders for when you feel out of tune
 * [Give and take](give_and_take.md)
 * [Just do your thing](just_do_your_thing.md)
 * [Keep wandering](keep_wandering.md)
+* [Look back](look_back.md)
+* [Forgive](forgive.md)
 * [Care for what matters](care_for_what_matters.md)
 * [Uncorner](uncorner.md)
 * [Be more](be_more.md)

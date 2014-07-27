@@ -1,17 +1,17 @@
 #Scattered Snippets
 
-* give (hyde - gift as the enabler of connections. gifts that grow when shared.)
-  - also Frankl. The more the person gives himself, the more he actualizes or finds himself.
+* Be thankful.
+3 reasons people need God:
+1. to ask for things
+2. to say sorry
+3. to say thank you
+You can do that to Universe at large. But you can also do that to people. All these things create connections and you need to be connected to both whole Universe and individual parts of it.
+
 * listen to the noise // embrace imperfection (karsavin, onion-like world)
 
 * Go slow, go low. =>
 power of taking it slowly.
 go low - like water, striving for lower places. being gentle but firm. having no form and taking any form.
-
-* take responsibility?
-
-* look back
-Frankl: "having been is also a kind of being, and perhaps the surest kind"; " having been is the surest kind of being"
 
 * Repeat (mandelbrot + feynman) - force of nature? Reproduction.
 The amusing part of life: the whole thing is just reproduction. No matter how complicated the business is, the main point is to do it again!"
