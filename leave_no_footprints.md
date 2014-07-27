@@ -1,15 +1,15 @@
 # Leave no footprints
 
-You are not forever.  
-Not in space or time.  
-You are happening right now   
-In between these lines.  
-
-
 You are now or never.  
 In between you're thrown.  
 You are not together.  
 You are not alone.  
+
+
+You are not forever.  
+Not in space or time.  
+You are happening right now   
+In between these lines.  
 
 
 You are not your body.  

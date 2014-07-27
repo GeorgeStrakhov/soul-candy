@@ -11,6 +11,6 @@ If you were an out-of-tune string on a well-tuned guitar, here is how you would 
 
 A perfectly tuned string can't be heard at all [on its own]. It only contributes to the overall volume and richness of the music that is being played.
 
-So when troubles, here is a simple recipe:
+So when you feel bad, here is a simple recipe:
 
 Shut up, Calm down, Tune in!

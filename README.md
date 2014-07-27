@@ -15,7 +15,7 @@ Enjoy your soul candy, but don't take too much at a time.
 Hugs,  
 +G
 
-Summer 2014. Hong Kong, Kuala Lumpur, Kathmandu and the air in between.
+Summer 2014. Hong Kong, Kuala Lumpur, Kathmandu and all the air in between.
 
 * * *
 p.s.  
