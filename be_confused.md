@@ -16,7 +16,7 @@ From here you have a few ways to go:
 
 Embrace confusion. All the tensions and possibilities of the world are in it. Enjoy the taste of not knowing.
 
-If you are not confused, suprised or puzzled at least a few times a day, then you are probably missing out on a lot of Universe has to offer.
+If you are not confused, suprised or puzzled at least a few times a day, then you are probably missing out on a lot of what Universe has to offer.
 
 * * *
 

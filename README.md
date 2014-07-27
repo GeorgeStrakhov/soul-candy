@@ -1,4 +1,4 @@
-#Preface
+![Soul Candy](cover.jpg)
 
 Dear Reader!
 
