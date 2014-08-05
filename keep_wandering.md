@@ -3,7 +3,7 @@
 Beware of everything you know!  
 For to the ocean rivers flow  
 And bring with them what once was known  
-To be a solid, soulless stone.
+As nothing, but a solid stone.
 
 
 Yet now it flows. Then it will grow.  
