@@ -13,6 +13,7 @@ a book of obvious little reminders for when you feel out of tune
 * [Just do your thing](just_do_your_thing.md)
 * [Keep wandering](keep_wandering.md)
 * [Care for what matters](care_for_what_matters.md)
+* [Unfocus](unfocus.md)
 * [Look back](look_back.md)
 * [Forgive](forgive.md)
 * [Uncorner](uncorner.md)
