@@ -14,6 +14,6 @@ Is all that anybody knows.
 * * *
 
 Read More:
-* David Henry Thoreau
+* Henry David Thoreau
 * Richard Feynman
 * Robert Frost
