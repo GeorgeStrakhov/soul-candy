@@ -6,7 +6,7 @@ Most of the atoms that your brain is made of right now will be gone in 2 weeks. 
 
 Now being a process is a wonderful thing. If you think of yourself as of something that Universe once produced in an awkward accident and threw into the oven of existence, then you may feel lonely and uncomfortable. But hey, what if you are not the wood in the oven, but the fire itself? As soon as you start thinking of yourself as something that Universe does (together with millions of other things), rather than what Universe produced, you can only feel wonder: wonder about yourself and about Universe that is doing you. 
 
-There is a difference,  you see, between saying that it made you and saying that it's doing you. Because if you say that it made you, then you are not it. But if you say that it's doing you, then you are it, for there is no way to know the dancer from the dance.
+There is a difference,  you see, between saying that it made you and saying that it's doing you. Because if you say that it made you, then you are not it. But if you say that it's doing you, then you are it, for a true dancer can not be known from the her dance.
 
 And so you are it. Yet you are a verb, not a noun. Thus in order to be it, you need to do it as well. You are doing Universe as much as it is doing you.
 
